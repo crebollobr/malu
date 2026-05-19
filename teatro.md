@@ -21,13 +21,11 @@ Chega de enrolação, pois está na hora de falar do tal desafio: entrar numa ca
 
 ---
 
-Dentro da caverna, a magia ergueu um palácio, e Flan — o perfeccionista — assumiu o papel de rei. A coisa que ele mais amou foi mandar em tudo. *(voz mandona)* "As cortinas estão tortas! O tapete não combina com o trono! Quem foi o louco que pôs roxo com vermelho?!" Só que o tal rei focou tanto em criar regras que esqueceu do básico: comprar portas, grades e armas para proteger a caverna.
+Dentro da caverna, a magia ergueu um palácio, e Flan — o perfeccionista — assumiu o papel de rei. A coisa que ele mais amou foi mandar em tudo. Reclamava que as cortinas estavam tortas, que o tapete não combinava com o trono, e exigia saber qual louco tinha posto roxo com vermelho. Só que o tal rei focou tanto em criar regras que esqueceu do básico: comprar portas, grades e armas para proteger a caverna.
 
-Foi aí que a segunda candidata, **Armor**, foi levada ao castelo. E os dois começaram a brigar imediatamente. *(alternando lados)* "Quem você pensa que é, mandando em mim?!" — "Eu sou o REI! Tá escrito na minha placa!" — "Eu como amora, eu mando em mim mesma!" Eu mesma estava AMANDO a briga, já tinha feito até pipoca, mas o guarda tinha que atrapalhar.
+Foi aí que a segunda candidata, **Armor**, foi levada ao castelo. E os dois começaram a brigar imediatamente. Armor queria saber quem ele pensava que era pra mandar nela; Flan retrucava que ele era o REI — estava escrito na placa; e Armor cravava que comia amora, então mandava em si mesma. Eu mesma estava AMANDO a briga, já tinha feito até pipoca, mas o guarda tinha que atrapalhar, chegando esbaforido pra avisar que o castelo havia sido invadido.
 
-**GUARDA** *(off):* Majestade! O castelo foi invadido!
-
-Pois é — castelo sem porta, sem grade, sem arma. Quem diria. Para fugir, Armor ignorou as reclamações de Flan e atravessou um espelho brilhante que encontrou na parede. Flan foi logo atrás, reclamando de tudo e de todos, porque, claro, *o espelho não estava limpo*. Do outro lado, eles deram de cara com a terceira candidata: **Adora**. *(voz trêmula)* "Aaai, vocês são vivos? Fantasmas? Alucinação por eu não ter dormido?!" O que deixou o perfeccionista decepcionado, porque ele achava que o desafio havia terminado.
+Pois é — castelo sem porta, sem grade, sem arma. Quem diria. Para fugir, Armor ignorou as reclamações de Flan e atravessou um espelho brilhante que encontrou na parede. Flan foi logo atrás, reclamando de tudo e de todos, porque, claro, *o espelho não estava limpo*. Do outro lado, eles deram de cara com a terceira candidata: **Adora**, que, toda trêmula, perguntou se eles eram vivos, fantasmas, ou alucinação por ela não ter dormido. O que deixou o perfeccionista decepcionado, porque ele achava que o desafio havia terminado.
 
 ---
 
@@ -41,11 +39,11 @@ Porém, em determinado momento, **Armor** parou e perguntou quanta burrice o rei
 
 *(Luz vermelha. Trilha sobe. A Rainha abre os braços.)* E então cheguei eu. Vestido preto rasgado, coroa de ossos, dois olhares e três sorrisos. Esses pobres mortais teriam que lutar contra mim.
 
-*(em pânico, imitando os três)* — Flan: "Isso não estava nos planos! Eu exijo um manual!" — Armor: "Eu não vim aqui pra morrer, vim pra MANDAR!" — Adora: "Eu tenho medo de tudo... mas hoje eu não vou ter medo de VOCÊ."
+Os três entraram em pânico, cada um do seu jeito: Flan, desesperado, gritava que aquilo não estava nos planos e exigia um manual; Armor berrava que não tinha vindo ali pra morrer, tinha vindo pra MANDAR; e Adora, pra surpresa geral, disse que tinha medo de tudo... mas que naquele dia ela não ia ter medo de mim.
 
 Flan tentou negociar. Eu *adoro* quando tentam negociar. Mandei ele organizar os ossos do meu cemitério por ordem alfabética. Tá lá até hoje, parou na letra C. Armor partiu pra cima com unha e dente — literalmente, mordeu meu braço, mas confundiu com uma amora gigante e desistiu por motivos de gosto ruim.
 
-E aí veio **Adora**. A menina que tinha medo de tudo, menos de si mesma. Puxou uma espada afiada — que, aliás, ela nem sabia que tinha. Tremendo da cabeça aos pés, olhou pra mim e disse: *(firme pela primeira vez)* "Se eu sobrevivi a mim mesma, eu sobrevivo a você." E avançou.
+E aí veio **Adora**. A menina que tinha medo de tudo, menos de si mesma. Puxou uma espada afiada — que, aliás, ela nem sabia que tinha. Tremendo da cabeça aos pés, olhou pra mim e disse, firme pela primeira vez, que se tinha sobrevivido a si mesma, sobreviveria a mim. E avançou.
 
 *(Som de espada. Black-out rápido. Luz volta. A Rainha examina as unhas, indiferente.)* E... eu deixei. *(dá de ombros)* Que foi? Eu também tenho meus dias bons. Uma vez por século. Hoje calhou.
 
