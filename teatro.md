@@ -1,126 +1,61 @@
 # A RAINHA DOS MORTOS APRESENTA: O DESAFIO DO REI VELHO
-*Monólogo teatral — sarau escolar (~5 min)*
-
-**ELENCO**
-- **RAINHA DOS MORTOS** — narradora, sai do caixão
-- **GUARDA** — voz dos bastidores
-- *(Flan, Armor, Adora e o Rei aparecem nas imitações da Rainha)*
+*Sarau — monólogo em texto corrido (~6 min)*
 
 ---
 
-### CENA 1 — ABERTURA
-*(Palco escuro. Caixão no centro. Órgão sinistro. A tampa se abre devagar. A RAINHA senta.)*
+*(Palco escuro. Caixão no centro. Órgão sinistro. A tampa se abre devagar. A RAINHA DOS MORTOS senta, espreguiça-se.)*
 
-**RAINHA:** Olá, queridos mortos-vivos! Tudo bem? *(pausa)* Vão me responder? Eu *ordeno*!
-Estão tímidos? Ótimo. Pois o show de horrores começa AGORA.
+Olá, queridos mortos-vivos, como estão? Vão me responder? Eu *ordeno*! Tudo bem? Tudo bem? Estão tímidos? Ótimo! Pois o show de horrores começa agora.
 
-*(Levanta-se.)*
+*(Levanta-se, caminha entre a plateia.)* Vamos começar: vocês têm medo da morte? Ah, sério? *(Um cadáver cai do alto quase em cima dela. Ela nem se mexe.)* Mas vocês sabem o que é pior que a morte? Não? Pois irei lhes falar: é aaaa *humanidade*. Seres que insistem em seguir padrões irrealistas. Nunca ouviram dizer que a inveja mata? Cegos pelo próprio egoísmo, vivem numa indústria de carne, quase pessimistas em relação aos animais...
 
-Perguntinha rápida: vocês têm medo da morte? Ah, sério?
-
-*(Um cadáver — boneco — cai do alto. Ela nem se mexe.)*
-
-Mas sabe o que é PIOR que a morte? A *humanidade*. Gente que vive cega pelo próprio egoísmo... Enfim, hoje eu estou de bom humor — coisa rara, aproveitem. Vou contar uma história muito antiga.
+*(Toque de campainha.)* Tô indo! *(Entra um esqueleto com uma caixa de pizza. Ela pega, paga com uma moeda enferrujada, o esqueleto sai chacoalhando.)* Eu *amo* pizza. Mas o que eu amo mais ainda são histórias. E hoje, já que estou de bom humor — coisa rara, aproveitem — irei lhes contar uma linda história, muito antiga.
 
 ---
 
-### CENA 2 — O DESAFIO
-**RAINHA:** Há muito tempo existia um rei. Um rei *muiiiito* velho. No seu centésimo aniversário, decidiu que estava na hora de se aposentar e curtir a vida com a dedicada esposa.
+Há muito tempo existia um rei. Um rei *muiiiito* velho. E no seu centésimo aniversário, ele decidiu que estava na hora de se aposentar e curtir a vida ao lado da sua dedicada esposa. Mas, antes, ele teria que arranjar um sucessor para governar o vasto reino. Então chamou três pessoas para cumprir um desafio que mudaria suas vidas — *(sorri)* e, no caso de dois deles, *encurtaria*.
 
-Só que ele precisava de um sucessor. Então chamou três candidatos para um desafio. *(sorri)* Que, no caso de dois deles, *encurtaria* a vida.
+O primeiro candidato era o **Flan**, mas todos o chamavam de "o perfeccionista" — como o nome já diz, ele queria tudo perfeito. A segunda, **Armor**, uma garota brava que vive comendo amora, foi levada ao castelo justamente por ser uma pessoa que *causa* problemas. E a terceira, **Adora**, uma menina que tem pavor de absolutamente tudo, menos de si mesma, é claro.
 
-O primeiro: **FLAN**, "o perfeccionista" — queria tudo perfeito.
-A segunda: **ARMOR** — brava, vivia comendo amora e arrumando confusão.
-A terceira: **ADORA** — tinha pavor de tudo... menos de si mesma.
-
-O desafio? Entrar numa caverna mágica, misteriosa, e — acima de tudo — perigosa.
-
-*(sussurrando pra plateia)* Spoiler: nem todos sobrevivem.
+Chega de enrolação, pois está na hora de falar do tal desafio: entrar numa caverna imensa, mágica, misteriosa e — acima de tudo — perigosa. Será que eles vão conseguir sobreviver? *(sussurrando pra plateia)* Spoiler: nem todos. Vamos ver.
 
 ---
 
-### CENA 3 — O PALÁCIO
-**RAINHA:** Dentro da caverna, a magia ergueu um palácio. Flan assumiu o trono e a coisa que ele mais amou foi mandar em tudo.
+Dentro da caverna, a magia ergueu um palácio, e Flan — o perfeccionista — assumiu o papel de rei. A coisa que ele mais amou foi mandar em tudo. *(voz mandona)* "As cortinas estão tortas! O tapete não combina com o trono! Quem foi o louco que pôs roxo com vermelho?!" Só que o tal rei focou tanto em criar regras que esqueceu do básico: comprar portas, grades e armas para proteger a caverna.
 
-*(voz mandona)* — "As cortinas estão tortas! Quem foi o louco que pôs roxo com vermelho?!"
-
-**RAINHA:** Tão focado em criar regras que o gênio esqueceu do básico: comprar portas, grades, armas. *Qualquer* coisa pra defender a caverna.
-
-Aí chega **Armor**, arrastada até o castelo. Os dois começam a brigar IMEDIATAMENTE.
-
-*(alternando lados)*
-— "Quem você pensa que é?!"
-— "Eu sou o REI!"
-— "Eu como amora, eu mando em mim mesma!"
-
-**RAINHA:** Eu estava AMANDO. Mas o guarda tinha que estragar:
+Foi aí que a segunda candidata, **Armor**, foi levada ao castelo. E os dois começaram a brigar imediatamente. *(alternando lados)* "Quem você pensa que é, mandando em mim?!" — "Eu sou o REI! Tá escrito na minha placa!" — "Eu como amora, eu mando em mim mesma!" Eu mesma estava AMANDO a briga, já tinha feito até pipoca, mas o guarda tinha que atrapalhar.
 
 **GUARDA** *(off):* Majestade! O castelo foi invadido!
 
-**RAINHA:** Pois é. Castelo sem porta. Quem diria.
-
-Armor atravessa um espelho brilhante na parede. Flan vai atrás — reclamando, porque *o espelho não estava limpo*.
-
-Do outro lado, eles dão de cara com **Adora**.
-
-*(voz trêmula)* — "Aaai, vocês são vivos? Fantasmas?!"
-
-**RAINHA:** Flan ficou DEVASTADO. Achou que o desafio tinha acabado. Coitado.
+Pois é — castelo sem porta, sem grade, sem arma. Quem diria. Para fugir, Armor ignorou as reclamações de Flan e atravessou um espelho brilhante que encontrou na parede. Flan foi logo atrás, reclamando de tudo e de todos, porque, claro, *o espelho não estava limpo*. Do outro lado, eles deram de cara com a terceira candidata: **Adora**. *(voz trêmula)* "Aaai, vocês são vivos? Fantasmas? Alucinação por eu não ter dormido?!" O que deixou o perfeccionista decepcionado, porque ele achava que o desafio havia terminado.
 
 ---
 
-### CENA 4 — A VERDADE DO REI
-**RAINHA:** O que eles não sabiam é que o último desafio não era uma prova qualquer. A única linha tênue entre o trono e virar poeira no chão era... *(toque de tambores)*
+Mas não havia tempo a perder. Todos saíram do palácio eufóricos para enfrentar o último desafio. O que eles não sabiam é que aquela não era uma prova comum. A única linha tênue que os separava de se tornarem reis ou virarem poeira no chão era... *(toque de tambores)* a tão temida Morte.
 
-**EU.** A Rainha dos Mortos.
+*(volta ao público)* Hahaha... lembra de mim? Diz aí, você tem medo de morrer? O que será que te espera do outro lado? O pior de tudo é que ninguém nunca voltou pra contar a fofoca. Talvez porque o Além seja um vazio aterrorizante, ou talvez porque o Wi-Fi de lá seja bom demais para alguém querer voltar. De qualquer forma... *(aponta pra alguém)* o seu caixão está logo ali. Boa sorte.
 
-No caminho, **Armor** parou e perguntou:
-— "Quanta burrice esse rei tem que ter pra achar que nós três vamos derrotar uma DEUSA?"
-
-**RAINHA:** E aí veio a parte suja. O rei *sabia*. Sabia que estava mandando dois deles pra morte certa pra um sair coroado. Sabia que era errado.
-
-E sabe o que ele fez com essa informação? *(sarcástica)* NADA. Porque aposentadoria boa, segundo ele, exige sacrifício. *Dos outros.*
+Porém, em determinado momento, **Armor** parou e perguntou quanta burrice o rei teria que ter para achar que eles três venceriam uma deusa. Mas na verdade era bem o contrário: ele sabia. Sabia desde o começo que estava sacrificando dois participantes pra um virar rei. Sabia que era errado. *(sarcástica)* E quem disse que ele ligava? Porque aposentadoria boa, segundo ele, exigia sacrifício — *dos outros*. O que deixou Armor de boca aberta: sacrifício?! Que ideia mais torta.
 
 ---
 
-### CENA 5 — A BATALHA
-*(Luz vermelha. Trilha sobe. A Rainha abre os braços.)*
+*(Luz vermelha. Trilha sobe. A Rainha abre os braços.)* E então cheguei eu. Vestido preto rasgado, coroa de ossos, dois olhares e três sorrisos. Esses pobres mortais teriam que lutar contra mim.
 
-**RAINHA:** Então cheguei eu. Vestido preto rasgado, coroa de ossos.
+*(em pânico, imitando os três)* — Flan: "Isso não estava nos planos! Eu exijo um manual!" — Armor: "Eu não vim aqui pra morrer, vim pra MANDAR!" — Adora: "Eu tenho medo de tudo... mas hoje eu não vou ter medo de VOCÊ."
 
-*(em pânico, imitando os três)*
-— **FLAN:** "Eu exijo um manual!"
-— **ARMOR:** "Eu não vim aqui pra morrer, vim pra MANDAR!"
-— **ADORA:** "Eu tenho medo de tudo... mas hoje eu não vou ter medo de VOCÊ."
+Flan tentou negociar. Eu *adoro* quando tentam negociar. Mandei ele organizar os ossos do meu cemitério por ordem alfabética. Tá lá até hoje, parou na letra C. Armor partiu pra cima com unha e dente — literalmente, mordeu meu braço, mas confundiu com uma amora gigante e desistiu por motivos de gosto ruim.
 
-**RAINHA:** Flan tentou negociar. *Adoro* quando tentam negociar. Mandei ele organizar meus ossos por ordem alfabética. Tá lá até hoje. Parou na letra C.
+E aí veio **Adora**. A menina que tinha medo de tudo, menos de si mesma. Puxou uma espada afiada — que, aliás, ela nem sabia que tinha. Tremendo da cabeça aos pés, olhou pra mim e disse: *(firme pela primeira vez)* "Se eu sobrevivi a mim mesma, eu sobrevivo a você." E avançou.
 
-Armor partiu pra cima — literalmente, mordeu meu braço. Mas confundiu com uma amora gigante e desistiu por motivos de gosto ruim.
-
-E aí veio **Adora**. A menina que tinha medo de tudo, menos de si mesma. Puxou uma espada que ela nem sabia que tinha. Tremendo, olhou pra mim e disse:
-
-*(firme)* — "Se eu sobrevivi a mim mesma, eu sobrevivo a você."
-
-E avançou.
-
-*(Som de espada. Black-out. Luz volta. A Rainha examina as unhas.)*
-
-E... eu deixei. *(dá de ombros)* Que foi? Eu também tenho meus dias bons. Hoje calhou.
+*(Som de espada. Black-out rápido. Luz volta. A Rainha examina as unhas, indiferente.)* E... eu deixei. *(dá de ombros)* Que foi? Eu também tenho meus dias bons. Uma vez por século. Hoje calhou.
 
 ---
 
-### CENA 6 — EPÍLOGO
-**RAINHA:** **Adora** virou rainha. Governa bem. Ainda treme nos discursos, mas tá indo.
-**Flan** continua catalogando ossos. Chegou na letra F.
-E **Armor**? Abriu uma barraquinha. Vende amora. Dizem que as amoras são ótimas... *o atendimento, nem tanto*.
+Vocês querem saber o que aconteceu depois dessa batalha? Pois eu conto. **Adora** — a única que fez um bom trabalho — virou rainha, e até hoje governa bem (ainda treme um pouquinho nos discursos, mas tá indo). **Flan** continua catalogando ossos, já chegou na letra F, manda lembrança. E **Armor**? Abriu uma barraquinha, *vende amora*, e dizem por aí que as amoras são ótimas... *o atendimento, nem tanto*.
 
-*(olha pro caixão, volta pro público)*
+*(olha pro caixão, volta pro público)* E o velho rei? Ah, esse se aposentou. Sossegado, dedicado, ao lado da esposa. E adivinha quem foi visitar ele uns aninhos depois? *(sorri largo, aponta pra si mesma)* EU.
 
-E o velho rei? Esse se aposentou. E adivinha quem foi visitar ele uns aninhos depois?
-
-*(sorri largo, aponta pra si mesma)* EU.
-
-*(Caminha pro caixão.)* Mas isso, queridos mortos-vivos... fica pro próximo sarau!
+*(Caminha em direção ao caixão.)* Mas, para o seu desespero, isso fica pro próximo sarau... hahahahaaa!
 
 *(Entra no caixão. Tampa fecha. Black-out.)*
 
